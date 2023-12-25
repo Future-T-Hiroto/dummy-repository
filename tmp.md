@@ -6,3 +6,4 @@ sasisuseso
 tatituteto
 naninuneno
 hahihuheho
+mamimumemo
