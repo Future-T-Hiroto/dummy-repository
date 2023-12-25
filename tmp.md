@@ -10,3 +10,4 @@ mamimumemo
 yayiyuyeyo
 rarirurero
 wawiwuwewo
+aiueo
