@@ -7,3 +7,4 @@ tatituteto
 naninuneno
 hahihuheho
 mamimumemo
+yayiyuyeyo
