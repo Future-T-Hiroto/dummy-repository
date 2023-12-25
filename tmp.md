@@ -12,3 +12,4 @@ rarirurero
 wawiwuwewo
 aiueo
 kakikukeko
+sasisuseso
